@@ -1,1 +1,1 @@
-# FSE-recitation-F26
+In-n-out has the best burgers!
